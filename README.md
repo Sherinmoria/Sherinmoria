@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @Sherinmoria
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+Sherinmoria/Sherinmoria is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+My channel link :https://youtube.com/channel/UCppTvZSlMUFcf2amJlgDL7g
+
+I would like to collaboration with your app promotiin to using my youtube channel
